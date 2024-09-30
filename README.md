@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Virag-Koradiya
 - 👀 I’m interested in Web Dev.
 - 🌱 I’m currently learning Web Dev and DSA.
-- 📫 Can easily available on Socials like Instagram @viraaaaag__, [LinkedIN](https://www.linkedin.com/in/virag-koradiya?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app).
+- 📫 One can easily find me on Socials like Instagram @viraaaaag__, [LinkedIN](https://www.linkedin.com/in/virag-koradiya?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app).
 - 😄 Pronouns: He/Him/His
 - ⚡ Valar Morghulis!
