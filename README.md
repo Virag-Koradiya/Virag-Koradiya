@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Virag-Koradiya
+- MSCIT | DAIICT'26
 - 👀 I’m interested in Web Dev.
 - 🌱 I’m currently learning Web Dev and DSA.
 - 📫 One can easily find me on Socials like Instagram @viraaaaag__, [LinkedIN](https://www.linkedin.com/in/virag-koradiya?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app).
